@@ -12,8 +12,9 @@
 ---
 #### Concepts : Screen
 
-##### / [Narrative / Character Design](https://www.youtube.com/watch?v=u2Y8XNKbkKM)
 ##### / [Narrative Intro / Sequencing](https://www.youtube.com/watch?v=0dStoOUas80)
+##### / [Narrative / Character Design ](https://www.youtube.com/watch?v=u2Y8XNKbkKM)
+##### / [Narrative Intro / Character Design ](https://www.youtube.com/watch?v=DYq8eAOXBNo)
 
 ---
 #### Concepts : Exhibition
