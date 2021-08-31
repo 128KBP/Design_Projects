@@ -1,5 +1,4 @@
-
-( UH-OH Splash FX} ####### Complex C Wave^-6=SPHash0e-7
+####### Complex C Wave^-6=SPHash0e-7
 ###### Complex C Wave^-6=SPHash0e-6
 ##### Complex C Wave^-6=SPHash0e-5
 #### Complex C Wave^-6=SPHash0e-4
