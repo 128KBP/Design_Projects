@@ -1,6 +1,6 @@
+#### Complex C Wave^-6=SPHash0e-4
 
----
-#### Video Guides : 15^-6#.5
+#### Video Guides : 
 ##### / [Angular Momentum](https://www.youtube.com/channel/UCHGtmfjIICpuETvXsRd2eww/about)
 
 ---
