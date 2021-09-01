@@ -1,11 +1,3 @@
-####### Complex C Wave^-6=SPHash0e-7
-###### Complex C Wave^-6=SPHash0e-6
-##### Complex C Wave^-6=SPHash0e-5
-#### Complex C Wave^-6=SPHash0e-4
-### Complex C Wave^-6=SPHash0e-3
-## Complex C Wave^-6=SPHash0e-2
-# Complex C Wave^-6=SPHash0e-1
-Repetition in QCD
 
 ---
 
